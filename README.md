@@ -16,7 +16,7 @@
 
 ♡ Please don't vent to me, fish for reactions, or make me carry the conversation. **If you interact with me first and you're dry, the conversation is already pointless to me.**
 
-♡ I'm not a people pleaser. If you don't like me or the way I am, we're probably not going to get along.
+♡ I'm not a people pleaser.I am real straightforward, If you don't like me or the way I am, we're probably not going to get along.
 
 ♡ When it comes to God or Jesus, please be respectful. I don't tolerate disrespect toward Jesus or Christianity, dont even try to chat if you are the type to do that!
 
@@ -30,7 +30,7 @@
 
 ♡ Furries.
 
-♡ Rude or disrespectful people.
+♡ Rude or disrespectful people. DO NOT make any sexualized jokes and stuff like that or try and be funny. just don't.
 
 ♡ People who make fun of God, Jesus, or Christianity.
 
