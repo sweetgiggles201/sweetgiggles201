@@ -20,11 +20,11 @@
 
 ♡ I'm not a people pleaser. If you don't like me or the way I am, we're probably not going to get along.
 
-♡ When it comes to God or Jesus, please be respectful. I don't identify as Christian, but I don't tolerate disrespect toward Jesus or Christianity.
+♡ When it comes to God or Jesus, please be respectful. I don't tolerate disrespect toward Jesus or Christianity, dont even try to chat if you are the type to do that!
 
-♡ About pronouns: I don't really understand they/them or other pronouns. No disrespect is intended—I'd rather call you by your name. If that's an issue, it's probably best we don't interact.
+♡ About pronouns: I don't really understand they/them or other pronouns. No disrespect is intended—I'd rather call you by your name. If that's an issue, it's probably best we don't interact if i don't understand.
 
-♡ If you're a guy, don't be weird or creepy with me, especially online.
+♡ If you're a guy, don't be weird or creepy with me, especially online. If i get a weird vibe, just stop talking.
 
 ---
 
