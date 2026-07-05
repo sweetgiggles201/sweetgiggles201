@@ -16,8 +16,6 @@
 
 ♡ Please don't vent to me, fish for reactions, or make me carry the conversation. **If you interact with me first and you're dry, the conversation is already pointless to me.**
 
-♡ I don't have a DNI list. Just don't be disrespectful or throw shade at my beliefs.
-
 ♡ I'm not a people pleaser. If you don't like me or the way I am, we're probably not going to get along.
 
 ♡ When it comes to God or Jesus, please be respectful. I don't tolerate disrespect toward Jesus or Christianity, dont even try to chat if you are the type to do that!
