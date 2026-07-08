@@ -50,7 +50,7 @@
 
 ♡ People who make Joe Jackson jokes.
 
-♡ Dry conversationalists.
+♡ if you chat to me first and you are dry.
 
 ♡ Anyone under **16**.
 
