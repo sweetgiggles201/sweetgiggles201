@@ -10,59 +10,65 @@
 
 </div>
 
+## ✧ 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+
+♡ Horror
+
+♡ Michael Jackson
+
+♡ Roblox
+
+♡ Spiritual/Religious topics *(curious conversations, not debates).*
+
+---
+
 ## ✧ 𝓑𝓮𝓯𝓸𝓻𝓮 𝓨𝓸𝓾 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
 
-♡ I don't usually interact with people first, but if you'd like to chat, I don't mind. Just be respectful.
+♡ I don't usually interact first, but I don't mind chatting. Just be respectful.
 
-♡ Please don't vent to me, fish for reactions, or make me carry the conversation. **If you interact with me first and you're dry, the conversation is already pointless to me.**
+♡ Please don't vent to me, fish for reactions, or expect me to carry the conversation. If I'm doing all the work, the conversation probably won't last.
 
-♡ I'm not a people pleaser.I am real straightforward, If you don't like me or the way I am, we're probably not going to get along.
+♡ I'm pretty straightforward. If you don't like that, we probably won't get along.
 
-♡ When it comes to God or Jesus, please be respectful. I don't tolerate disrespect toward Jesus or Christianity, dont even try to chat if you are the type to do that!
+♡ Please be respectful toward God, Jesus, and Christianity. I don't participate in or joke about things like voodoo, and I'd appreciate not being involved in those conversations.
 
-♡ About pronouns: I don't really understand they/them or other pronouns. No disrespect is intended—I'd rather call you by your name. If that's an issue, it's probably best we don't interact if i don't understand.
+♡ If you use pronouns I'm unfamiliar with or that I get confused by, I'd rather call you by a name you're comfortable with. It's not meant to be disrespectful—I just don't want to accidentally get it wrong.
 
-♡ If you're a guy, don't be weird or creepy with me, especially online. If i get a weird vibe, just stop talking.
+♡ If you're creepy or make me uncomfortable, don't expect me to keep talking.
 
 ---
 
 ## ✧ 𝓓𝓝𝓘 (𝓓𝓸 𝓝𝓸𝓽 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)
 
-♡ Furries.
+♡ The furry community isn't for me, so I'd rather not interact.
 
-♡ Rude or disrespectful people. DO NOT make any sexualized jokes and stuff like that or try and be funny. just don't.
+♡ Rude or disrespectful people.
 
-♡ People who make fun of God, Jesus, or Christianity.
+♡ Sexual jokes or inappropriate behavior.
 
-♡ People who make Joe Jackson jokes. I don't find them funny, so please don't make them around me.
+♡ People who disrespect God, Jesus, or Christianity.
 
-♡ Dry people. If I'm carrying the entire conversation, it probably won't last.
+♡ People who make Joe Jackson jokes.
 
-♡ People around **13–15**. I prefer interacting with people who are **16+**.
+♡ Dry conversationalists.
 
-♡ People looking for someone to vent to or trauma dump on. Please talk to someone you know and trust or a mental health professional instead—I'm not comfortable being that person for people I don't know.
+♡ Anyone under **16**.
 
-♡ If our beliefs are constantly going to clash or become the focus of our conversations, we're probably not a good match to interact.
+♡ People looking to trauma dump or constantly argue about beliefs.
 
 ---
 
 ## ✧ 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
-₊˚⊹♡ I keep my personal life private, but I'm always happy to talk about music, interests, or anything fun.
-
-♡ Please don't press me for personal information.
-
-♡ Please don't trauma dump or trauma bond with me. I don't do that.
-
-♡ If you make me uncomfortable or continue crossing my boundaries, you'll be ignored or blocked.
+♡ I keep my personal life private.
 
 ♡ I **LOVE** Michael Jackson. 🤍
 
-♡ I definitely prefer **Roblox** over **Pony Town.** There's just not much to do there... or anything to do, for that matter. 😭
+♡ I definitely prefer **Roblox** over **Pony Town.** 😭
 
-♡ If we vibe, have good energy, and everything is chill, I don't mind sharing my Roblox user.
+♡ If we get along, I don't mind sharing my Roblox user.
 
-♡ I love discovering good music, so if you have recommendations, let me know. 🎵
+♡ I love discovering new music, so feel free to send recommendations.
 
 ♡ I only speak **English**.
 
@@ -70,13 +76,7 @@
 
 ## ✧ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
 
-♡ If we match each other's energy and get along, I don't mind sharing my Discord.
-
-♡ Just don't expect meetups, calls, or anything beyond chatting online.
-
-♡ I'm most comfortable interacting with people who are around my own age (16+).
-
-♡ Other than that, I'm always happy to have a good conversation with respectful, genuine people.
+♡ If we vibe, I'm happy to chat on Discord or play Roblox together. Just don't expect anything more than that—I keep my personal life private, don't share photos, and if you push my boundaries or give me a weird vibe, that's a wrap.
 
 ---
 
@@ -84,37 +84,13 @@
 
 <img src="https://www.image2url.com/r2/default/images/1783122072577-bf6d7323-71f7-4b55-b3db-74e02d55841c.gif" width="100%">
 
-# 🕺✨ Michael Jackson ✨🕺
+## ✧ 𝓐 𝓛𝓲𝓽𝓽𝓵𝓮 𝓜𝓸𝓻𝓮 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
-### 💿 If you're a fan of his...
+### 🤍 𝓜𝓲𝓬𝓱𝓪𝓮𝓵 𝓙𝓪𝓬𝓴𝓼𝓸𝓷
 
-**I WOULD LOVE TO CHAT!! 🤍**
+He's one of my favorite artists of all time, so if you're a fan too, I'd genuinely love talking about his music, performances, the Jackson 5, favorite eras, or really anything MJ with yaaaa!
 
-The biopic made me love him **10x more.**
-
-I would love to chat about your **favorite MJ songs, favorite era, Jackson 5, or anything!** I don't mind at all. 💖
-
-━━━━━━━━━━━━━━━━━━━━━━
-
-### 🚫 One tiny request...
-
-Please don't come chatting to me saying...
-
-**"Man in the Mirror is underrated."**
-
-or
-
-**"Bad is underrated."**
-
-**Like... girl bye. 😭✋**
-
-━━━━━━━━━━━━━━━━━━━━━━
-
-## 🎧 If you can't handle my love for Michael Jackson...
-
-### Have a great day...
-
-# while I BLAST MJJ. 💿✨
+୨ৎ Please make any weird comments about any allegations, things like "Bad is so unnderrated", and disrespectful comments. 
 
 <img src="https://www.image2url.com/r2/default/images/1783121886341-fee4e716-887b-483c-9c73-6e7ca8290806.gif" width="420">
 
