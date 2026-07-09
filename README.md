@@ -1,16 +1,26 @@
 <div align="center">
 
+<img src="https://i.postimg.cc/2ysCcD2p/591cb7fa5990998d5c1a9d7da6bf8e6c.gif" width="65%">
+
+<br><br>
+
 # 𝓢𝓴𝔂
 
 ### ୨୧ *𝒫𝓁𝑒𝒶𝓈𝑒 𝓇𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝒾𝓃𝓉𝑒𝓇𝒶𝒸𝓉𝒾𝓃𝑔.* ୨୧
 
-╭────────────────────♡────────────────────╮
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+
+<br>
 
 **୨ৎ Call me Sky ୨ৎ**
 
 </div>
 
+<div align="center">
+
 ## ✧ 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+
+</div>
 
 ♡ Horror
 
@@ -18,11 +28,17 @@
 
 ♡ Roblox
 
-♡ Spiritual/Religious topics *(curious conversations, not debates).*
+♡ Fun topics about anything or spiritual topics *(curious conversations, not debates).*
 
----
+<div align="center">
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+</div>
+
+<div align="center">
 
 ## ✧ 𝓑𝓮𝓯𝓸𝓻𝓮 𝓨𝓸𝓾 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
+
+</div>
 
 ♡ I don't usually interact first, but I don't mind chatting. Just be respectful.
 
@@ -36,9 +52,15 @@
 
 ♡ If you're creepy or make me uncomfortable, don't expect me to keep talking.
 
----
+<div align="center">
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+</div>
+
+<div align="center">
 
 ## ✧ 𝓓𝓝𝓘 (𝓓𝓸 𝓝𝓸𝓽 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)
+
+</div>
 
 ♡ The furry community isn't for me, so I'd rather not interact.
 
@@ -50,15 +72,21 @@
 
 ♡ People who make Joe Jackson jokes.
 
-♡ if you chat to me first and you are dry.
+♡ If you message me first and you're dry.
 
 ♡ Anyone under **16**.
 
 ♡ People looking to trauma dump or constantly argue about beliefs.
 
----
+<div align="center">
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+</div>
+
+<div align="center">
 
 ## ✧ 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
+
+</div>
 
 ♡ I keep my personal life private.
 
@@ -72,32 +100,30 @@
 
 ♡ I only speak **English**.
 
----
-
-## ✧ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
-
-♡ If we vibe, I'm happy to chat on Discord or play Roblox together. Just don't expect anything more than that—I keep my personal life private, don't share photos, and if you push my boundaries or give me a weird vibe, that's a wrap.
-
----
+<div align="center">
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+</div>
 
 <div align="center">
 
-<img src="https://www.image2url.com/r2/default/images/1783122072577-bf6d7323-71f7-4b55-b3db-74e02d55841c.gif" width="100%">
+## ✧ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
 
-## ✧ 𝓐 𝓛𝓲𝓽𝓽𝓵𝓮 𝓜𝓸𝓻𝓮 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
+</div>
 
-### 🤍 𝓜𝓲𝓬𝓱𝓪𝓮𝓵 𝓙𝓪𝓬𝓴𝓼𝓸𝓷
+♡ If we vibe, I'm happy to chat on Discord or play Roblox together. Just don't expect anything more than that—I keep my personal life private, don't share photos, and if you push my boundaries or give me a weird vibe, that's a wrap.
 
-He's one of my favorite artists of all time, so if you're a fan too, I'd genuinely love talking about his music, performances, the Jackson 5, favorite eras, or really anything MJ with yaaaa!
+<div align="center">
 
-୨ৎ Please make any weird comments about any allegations, things like "Bad is so unnderrated", and disrespectful comments. 
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+
+<br><br>
 
 <img src="https://www.image2url.com/r2/default/images/1783121886341-fee4e716-887b-483c-9c73-6e7ca8290806.gif" width="420">
 
 <br><br>
 
-╰────────────────────♡────────────────────╯
+<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
 
-### 𝒯𝒽𝒶𝓃𝓀 𝓎𝑜𝓊 𝒻𝑜𝓇 𝓇𝑒𝒶𝒹𝒾𝓃𝑔. ♡
+### 𝒯𝒽𝒶𝓃𝓀 𝓎𝑜𝓊 𝒻𝓸𝓇 𝓇𝑒𝒶𝒹𝒾𝓃𝑔. ♡
 
 </div>
