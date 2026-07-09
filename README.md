@@ -60,19 +60,21 @@
 
 ♡ The furry community isn't for me, so I'd rather not interact.
 
-♡ Rude or disrespectful people.
+♡ Rude or disrespectful people. Racist people, weird people and obvious stuff.
 
 ♡ Sexual jokes or inappropriate behavior.
 
 ♡ People who disrespect God, Jesus, or Christianity.
 
-♡ People who make Joe Jackson jokes.
+♡ People who make Joe Jackson jokes, abuse is never a joke.
 
 ♡ If you message me first and you're dry.
 
 ♡ Anyone under **16**.
 
-♡ People looking to trauma dump or constantly argue about beliefs.<div align="center">
+♡ People looking to trauma dump or constantly argue about beliefs.
+
+<div align="center">
 
 ## 💿 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
@@ -84,23 +86,17 @@
 
 ♡ I **LOVE** Michael Jackson. 🤍
 
-♡ I definitely prefer **Roblox** over **Pony Town.** 😭 (if you got roblox, let's play games together duhh)
+♡ I definitely prefer **Roblox** over **Pony Town.** 😭 (if you got Roblox, let's play games together duhh)
+
+♡ FYI: I play the majority of horror games on Roblox, so if you don't like horror, sorry! 😭 I also play other games ofc, but I love horror. 👻
+
+♡ If you're cool and chill and just a good vibe in general, don't be afraid to ask for my Discord or Roblox because you gon be my friend now. 🫂
 
 ♡ If we get along, I don't mind sharing my Roblox user.
 
 ♡ I love discovering new music, so feel free to send recommendations.
 
 ♡ I only speak **English**.
-
-<div align="center">
-
-## ✨ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
-
-⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
-
-</div>
-
-♡ If we vibe, I'm happy to chat on Discord or play Roblox together. Just don't expect anything more than that—I keep my personal life private, don't share photos, and if you push my boundaries or give me a weird vibe, that's a wrap.
 
 <br>
 
