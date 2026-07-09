@@ -8,17 +8,17 @@
 
 ### ୨୧ *𝒫𝓁𝑒𝒶𝓈𝑒 𝓇𝑒𝒶𝒹 𝒷𝑒𝒻𝑜𝓇𝑒 𝒾𝓃𝓉𝑒𝓇𝒶𝒸𝓉𝒾𝓃𝑔.* ୨୧
 
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+୨ৎ ─────────────── ୨ৎ
 
-<br>
-
-**୨ৎ Call me Sky ୨ৎ**
+**♡ Call me Sky ♡**
 
 </div>
 
 <div align="center">
 
-## ✧ 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+## 🎀 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
 </div>
 
@@ -31,12 +31,10 @@
 ♡ Fun topics about anything or spiritual topics *(curious conversations, not debates).*
 
 <div align="center">
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
-</div>
 
-<div align="center">
+## 💌 𝓑𝓮𝓯𝓸𝓻𝓮 𝓨𝓸𝓾 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
 
-## ✧ 𝓑𝓮𝓯𝓸𝓻𝓮 𝓨𝓸𝓾 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
+୨ৎ ─────────────── ୨ৎ
 
 </div>
 
@@ -53,12 +51,10 @@
 ♡ If you're creepy or make me uncomfortable, don't expect me to keep talking.
 
 <div align="center">
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
-</div>
 
-<div align="center">
+## 🩷 𝓓𝓝𝓘
 
-## ✧ 𝓓𝓝𝓘 (𝓓𝓸 𝓝𝓸𝓽 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽)
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
 </div>
 
@@ -76,15 +72,11 @@
 
 ♡ Anyone under **16**.
 
-♡ People looking to trauma dump or constantly argue about beliefs.
+♡ People looking to trauma dump or constantly argue about beliefs.<div align="center">
 
-<div align="center">
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
-</div>
+## 💿 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
 
-<div align="center">
-
-## ✧ 𝓐𝓫𝓸𝓾𝓽 𝓜𝓮
+୨ৎ ─────────────── ୨ৎ
 
 </div>
 
@@ -101,29 +93,29 @@
 ♡ I only speak **English**.
 
 <div align="center">
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
-</div>
 
-<div align="center">
+## ✨ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
 
-## ✧ 𝓘𝓯 𝓨𝓸𝓾'𝓭 𝓛𝓲𝓴𝓮 𝓽𝓸 𝓘𝓷𝓽𝓮𝓻𝓪𝓬𝓽
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
 </div>
 
 ♡ If we vibe, I'm happy to chat on Discord or play Roblox together. Just don't expect anything more than that—I keep my personal life private, don't share photos, and if you push my boundaries or give me a weird vibe, that's a wrap.
 
+<br>
+
 <div align="center">
 
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
-
-<br><br>
+୨ৎ ─────────────── ୨ৎ
 
 <img src="https://www.image2url.com/r2/default/images/1783121886341-fee4e716-887b-483c-9c73-6e7ca8290806.gif" width="420">
 
 <br><br>
 
-<img src="https://i.postimg.cc/pT1Wj8jV/54d016db5827e726f57280fef46c4928.gif" width="45%">
+⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆
 
-### 𝒯𝒽𝒶𝓃𝓀 𝓎𝑜𝓊 𝒻𝓸𝓇 𝓇𝑒𝒶𝒹𝒾𝓃𝑔. ♡
+### *𝓣𝓱𝓪𝓷𝓴 𝔂𝓸𝓾 𝓯𝓸𝓻 𝓻𝓮𝓪𝓭𝓲𝓷𝓰.* ♡
+
+₊˚⊹♡ Have a lovely day! ♡⊹₊˚
 
 </div>
