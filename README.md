@@ -84,7 +84,7 @@
 
 ♡ I **LOVE** Michael Jackson. 🤍
 
-♡ I definitely prefer **Roblox** over **Pony Town.** 😭
+♡ I definitely prefer **Roblox** over **Pony Town.** 😭 (if you got roblox, let's play games together duhh)
 
 ♡ If we get along, I don't mind sharing my Roblox user.
 
