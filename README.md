@@ -42,7 +42,7 @@
 
 ♡ Please don't vent to me, fish for reactions, or expect me to carry the conversation. If I'm doing all the work, the conversation probably won't last.
 
-♡ I'm pretty straightforward. If you don't like that, we probably won't get along.
+♡ If you have a fun personality, talk to me. No reason not to instead of sitting around lol.
 
 ♡ Please be respectful toward God, Jesus, and Christianity. I don't participate in or joke about things like voodoo, and I'd appreciate not being involved in those conversations.
 
