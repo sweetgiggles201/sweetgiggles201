@@ -40,9 +40,9 @@
 
 ♡ I don't usually interact first, but I don't mind chatting. Just be respectful.
 
-♡ Please don't vent to me, fish for reactions, or expect me to carry the conversation. If I'm doing all the work, the conversation probably won't last.
+♡ Please don't vent to me randomly, fish for reactions, or expect me to carry the conversation. If I'm doing all the work, the conversation probably won't last.
 
-♡ If you have a fun personality, talk to me. No reason not to instead of sitting around lol.
+♡ I dont talk to people who aren't around my age. Im okay with 16-19. If you are 19 and you are chill thats fine but don't be a creep or weird because 
 
 ♡ Please be respectful toward God, Jesus, and Christianity. I don't participate in or joke about things like voodoo, and I'd appreciate not being involved in those conversations.
 
@@ -66,7 +66,7 @@
 
 ♡ People who disrespect God, Jesus, or Christianity.
 
-♡ People who make Joe Jackson jokes, abuse is never a joke.
+♡ People have nothing in common. There is no point chatting to me if we don't have similar likings. I don't mind differences but just don't chat to me if you just have nothing to say other than foolishness.
 
 ♡ If you message me first and you're dry.
 
