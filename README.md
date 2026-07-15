@@ -54,7 +54,7 @@
 
 🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user.
 
-🌷 Just don't expect meetups or anything beyond online friends.
+🌷 Just don't expect meetups or anything beyond online friends because you will get blocked by any means.
 
 ---
 
