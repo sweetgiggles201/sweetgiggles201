@@ -20,7 +20,7 @@
 
 🚫 If we have nothing in common, I'd rather not chat.
 
-🚫 Furries, trump supporters, dry people. also atheists. 
+🚫 Trump supporters, dry people, and also atheists. 
 
 🚫 Anyone disrespectful toward **God, Jesus, or Christianity.** I don't debate my beliefs.
 
