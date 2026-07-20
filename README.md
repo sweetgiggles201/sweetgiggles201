@@ -46,7 +46,7 @@
 
 👻 Horror
 
-🎬 Weak Hero & other K-dramas
+🎬 Weak Hero, THE OUTSIDERS OMG LOVE THE BOOK AND MOVIE, and many more kdramas
 
 ---
 
@@ -54,7 +54,7 @@
 
 🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user.
 
-🌷 You will get blocked by any means! Idc if you chat to me or not.
+🌷 You will get blocked by any means! 
 
 ---
 
