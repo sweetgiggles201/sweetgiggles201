@@ -46,7 +46,7 @@
 
 👻 Horror
 
-🎬 Weak Hero, THE OUTSIDERS OMG LOVE THE BOOK AND MOVIE, and many more kdramas
+🎬 Weak Hero, the outsiders, and many more series and kdramas
 
 ---
 
