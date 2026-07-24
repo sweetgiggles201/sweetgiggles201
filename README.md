@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/KjX0V5JD/34a7c4040eb4c73806c6ed2629a8f6b3.gif" width="100%">
+<img src="https://i.postimg.cc/jjMQ0Y48/938d61999cc8aa8c4de865dd4b5aff88.gif" width="100%">
 
 <br>
 
@@ -30,9 +30,9 @@
 
 🍓 Trump supporters, dry people, and atheists.
 
-✝️ If you just don't respect **Jesus** .
+✝️ Please don't disrespect Jesus around me.
 
-🕊️ Joke about dark magic, witchcraft, or similar topics.
+🕊️ Please don't joke about dark magic, witchcraft, or similar topics.
 
 💌 Please don't trauma dump to me.
 
@@ -72,11 +72,11 @@
 
 </div>
 
-🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user, just ask.
+🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user, just ask bro.
 
-🎀 Girl... I'm not grown, I'm **17**. 😭✋
+🎀 Girl... I'm not grown, I'm **17**. 
 
-🌷 Please don't be weird  you'll get blocked by ANY means!
+🌷 Please don't be weird or make things awkward.
 
 ---
 
