@@ -1,66 +1,78 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/9ffB0kD9/tumblr-6a0055037f2ceb0ed99e1ff6c951d18a-1bc07c29-540.webp-my-melody-sanrio-twitter-header-made-by-me-(wookiewink-o.jpg" width="100%">
+<img src="https://i.postimg.cc/9ffB0kD9/tumblr-6a0055037f2ceb0ed99e1ff6c951d18a-1bc07c29-540.webp" width="100%">
 
 <br>
 
-# 𝓢𝓴𝔂
+# ₊˚୨୧ 𝓢𝓴𝔂 ୨୧₊˚
 
 ### ♡ Call me Sky ♡
 
-୨ৎ ───────────────────── ୨ৎ
+✩₊˚.⋆☾⋆⁺₊✧────────────────✧₊⁺⋆☽⋆.˚₊✩
+
+૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა ✦ 90s–2000s girl at heart ✦ ♡
 
 </div>
 
-## 🩷 𝓓𝓝𝓘
+## 🎀 𝓓𝓝𝓘
 
-🚫 Anyone under **16**.
+🩷 Anyone under **16**
 
-🚫 Creeps, rude people, or anyone who makes me uncomfortable.
+🌸 Creeps, rude people, or anyone who makes me uncomfortable.
 
-🚫 If we have nothing in common, I'd rather not chat.
+🧸 If we have nothing in common, I'd rather not chat.
 
-🚫 Trump supporters, dry people, and also atheists. 
+🍓 Trump supporters, dry people, and atheists.
 
-🚫 Anyone disrespectful toward **God, Jesus, or Christianity.** I don't debate my beliefs.
+✝️ Please respect **God, Jesus, and Christianity.** because i don't play like that.
 
-🚫 People who joke about dark magic, witchcraft, or similar topics.
+🕊️ Please don't joke about dark magic, witchcraft, or similar topics.
 
-🚫 Please don't trauma dump to me. I'm not the right person for that.
+💌 Please don't trauma dump to me.
 
 ---
 
 <div align="center">
 
-<img src="https://i.postimg.cc/sgyDqkFJ/tumblr-medq3hp-QZZ1qa26dno1-r3-500.gif" width="75%">
+<img src="https://i.postimg.cc/8cw0x69s/giphy.gif" width="100%">
 
 <br>
 
-## 🎀 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼
+# 🎀 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼 ✩
+
+✩₊˚.⋆☾⋆⁺₊✧────────────────✧₊⁺⋆☽⋆.˚₊✩
 
 </div>
 
-🎵 Music (especially **Michael Jackson**, but I listen to lots of artists.)
+👻 Horror
+
+🎵 Music (90s–2000s and even a lil 80s)
+
+🎬 K-Dramas
+
+🌊 Avatar (2009)
 
 🎮 Roblox
 
-👻 Horror
+📚 The Outsiders
 
-🎬 Weak Hero, the outsiders, and many more series and kdramas
+💗 I would love to yap about these!!
 
 ---
 
 ## 💌 𝓒𝓱𝓪𝓽
 
-🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user.
+🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox**.
 
-🌷 You will get blocked by any means! 
+🎀 Girl... I'm not grown, I'm **17**. 😭
+
+🌷 Please don't be weird or make things awkward.
 
 ---
 
 <div align="center">
 
-୨ৎ ───────────────────── ୨ৎ
+✩₊˚.⋆☾⋆⁺₊✧────────────────✧₊⁺⋆☽⋆.˚₊✩
 
 ### ♡ Thanks for reading! ♡
 
