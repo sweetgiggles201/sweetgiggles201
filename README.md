@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://i.postimg.cc/9ffB0kD9/tumblr-6a0055037f2ceb0ed99e1ff6c951d18a-1bc07c29-540.webp" width="100%">
+<img src="https://i.postimg.cc/KjX0V5JD/34a7c4040eb4c73806c6ed2629a8f6b3.gif" width="100%">
 
 <br>
 
@@ -14,7 +14,13 @@
 
 </div>
 
-## 🎀 𝓓𝓝𝓘
+---
+
+<div align="center">
+
+## 🎀 𝓓𝓝𝓘 🎀
+
+</div>
 
 🩷 Anyone under **16**
 
@@ -24,9 +30,9 @@
 
 🍓 Trump supporters, dry people, and atheists.
 
-✝️ Please respect **God, Jesus, and Christianity.** because i don't play like that.
+✝️ If you just don't respect **Jesus** .
 
-🕊️ Please don't joke about dark magic, witchcraft, or similar topics.
+🕊️ Joke about dark magic, witchcraft, or similar topics.
 
 💌 Please don't trauma dump to me.
 
@@ -38,7 +44,7 @@
 
 <br>
 
-# 🎀 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼 ✩
+## 🎀 𝓘𝓷𝓽𝓮𝓻𝓮𝓼𝓽𝓼 🎀
 
 ✩₊˚.⋆☾⋆⁺₊✧────────────────✧₊⁺⋆☽⋆.˚₊✩
 
@@ -56,17 +62,21 @@
 
 📚 The Outsiders
 
-💗 I would love to yap about these!!
+💗 I would love to yap about this!!
 
 ---
 
-## 💌 𝓒𝓱𝓪𝓽
+<div align="center">
 
-🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox**.
+## 💌 𝓒𝓱𝓪𝓽 💌
 
-🎀 Girl... I'm not grown, I'm **17**. 😭
+</div>
 
-🌷 Please don't be weird or make things awkward.
+🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user, just ask.
+
+🎀 Girl... I'm not grown, I'm **17**. 😭✋
+
+🌷 Please don't be weird  you'll get blocked by ANY means!
 
 ---
 
@@ -77,5 +87,7 @@
 ### ♡ Thanks for reading! ♡
 
 ₊˚⊹ Have a lovely day! ⊹₊˚
+
+🩷🎀🌸✨
 
 </div>
