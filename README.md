@@ -62,7 +62,7 @@
 
 📚 The Outsiders
 
-💗 I would love to yap about this!! (IF U ARE A FAN OF MJ THE OUTSIDERS THE BLACK PHONE AND THE STUFF I MENTIONED PLEASE CHAT W ME)
+💗 I would love to yap about this!! (PLEASE CHAT W ME, if you'd like, if you relate to these interests as i have many more!)
 
 ---
 
