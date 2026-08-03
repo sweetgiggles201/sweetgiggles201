@@ -72,11 +72,11 @@
 
 </div>
 
-🩷 If we have similar interests, I don't mind chatting or giving my **Discord** or **Roblox** user, just ask bro.
+🩷 If we are getting along, I don't mind chatting or giving my **Discord** or **Roblox** user, if you just ask.
 
 🎀 Girl... I'm not grown, I'm **17**. 
 
-🌷 Please don't be weird or make things awkward.
+🌷 Please don't be weird or make things awkward, you'll get blocked by any means!
 
 ---
 
