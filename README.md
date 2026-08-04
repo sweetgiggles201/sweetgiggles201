@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img src="https://i.postimg.cc/6qMyTByw/image.gif" width="100%">
@@ -58,7 +59,7 @@
 
 🌊 Avatar (2009)
 
-🎮 Roblox
+🎮 Games (The Walking Dead, Resident Evil, Until Dawn, Little Nightmares, and more!)
 
 📚 The Outsiders
 
@@ -74,7 +75,9 @@
 
 🩷 If we are getting along, I don't mind chatting or giving my **Discord** or **Roblox** user, if you just ask.
 
-🎀 Girl... I'm not grown, I'm **17**. 
+🎠 If you happen to see me around on **Pony Town**, feel free to come interact! I don't mind chatting at all.
+
+🌸 I love hearing about other people's interests, especially ones I don't hear about very often. Maybe you'll introduce me to something really cool!
 
 🌷 Please don't be weird or make things awkward, you'll get blocked by any means!
 
@@ -91,3 +94,4 @@
 🩷🎀🌸✨
 
 </div>
+```
