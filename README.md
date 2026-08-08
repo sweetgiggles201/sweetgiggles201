@@ -31,11 +31,11 @@
 
 🍓 Trump supporters, dry people, and atheists.
 
-✝️ Please don't disrespect Jesus around me.
+✝️ If you throw blasphemy jokes towards Jesus, i don't joke like that.
 
 🕊️ Please don't joke about dark magic, witchcraft, or similar topics.
 
-💌 Please don't trauma dump to me.
+💌 If you trauma dump, idk you so talk to a professional!
 
 ---
 
@@ -63,7 +63,7 @@
 
 📚 The Outsiders
 
-💗 I would love to yap about this!! (PLEASE CHAT W ME, if you'd like, if you relate to these interests as i have many more!)
+💗 And Many more !!!
 
 ---
 
