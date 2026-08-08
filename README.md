@@ -31,7 +31,7 @@
 
 🍓 Trump supporters, dry people, and atheists.
 
-✝️ If you throw blasphemy jokes towards Jesus, i don't joke like that.
+✝️ If you throw blasphemy jokes or anything disrespectful towards Jesus, i don't joke like that. I may not follow but that doesn't give you the right to disrespect Jesus around me.
 
 🕊️ Please don't joke about dark magic, witchcraft, or similar topics.
 
