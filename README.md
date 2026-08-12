@@ -1,8 +1,6 @@
 
 <div align="center">
-
 <img src="https://i.postimg.cc/6qMyTByw/image.gif" width="100%">
-
 <br>
 
 # ₊˚୨୧ 𝓢𝓴𝔂 ୨୧₊˚
@@ -23,10 +21,12 @@
 </div>
 
 🩷 Anyone under **16**  
-🌸 Creeps, rude people, and anyone who makes me uncomfortable. I won't add you if i am uncomfortable!!
+🌸 Creeps, rude people, and anyone who makes me uncomfortable. I won't add you if I'm uncomfortable!!  
 🧸 If we have nothing in common, I'd rather not chat.  
-🍓 Trump supporters, dry people, and atheists(those who look for arguments).  
-✝️ If you throw blasphemy jokes or anything disrespectful towards Jesus, i don't joke like that. I may not follow but that doesn't give you the right to disrespect Jesus around me.  
+🌷 If you go by certain pronouns, just give me a name you'd like me to call you. If you want to argue about it, don't bother.  
+🍓 Trump supporters  
+💬 Dry people  
+✝️ Believe whatever you want, just respect my beliefs and don't come here looking for an argument.  
 🕊️ Please don't joke about dark magic, witchcraft, or similar topics.  
 💌 If you trauma dump, idk you so talk to a professional!
 
@@ -38,8 +38,7 @@
 
 </div>
 
-👻 I like many things — **Horror, Michael Jackson, Avatar (2009), The Outsiders, and more!**
-
+👻 I like many things — **Horror, Michael Jackson, Avatar (2009), The Outsiders, and more!**  
 🎀 Ponytown gets boring sometimes, so I got **Roblox** if you'd like to play on there!
 
 ---
