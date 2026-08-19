@@ -1,4 +1,3 @@
-
 <div align="center">
 <img src="https://i.postimg.cc/6qMyTByw/image.gif" width="100%">
 <br>
@@ -39,7 +38,8 @@
 </div>
 
 👻 I like many things — **Horror, Michael Jackson, Avatar (2009), The Outsiders, and more!**  
-🎀 Ponytown gets boring sometimes, so I got **Roblox** if you'd like to play on there!
+🎀 Ponytown gets boring sometimes, so I got **Roblox** if you'd like to play on there!  
+💌 I have Discord too! If I think you're cool enough and the vibe is mutual, I don't mind giving it to you! ♡
 
 ---
 
@@ -50,4 +50,9 @@
 ### ♡ See ya! ♡
 
 </div>
-```
+
+<div align="center">
+
+<img src="https://i.postimg.cc/c4nJj31h/jungkook-hi.gif" width="200">
+
+</div>
